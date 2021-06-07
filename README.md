@@ -15,3 +15,7 @@ overall i feel like I will get it soon.
 yeah it's little bit tricky in the beginning.
 
 but I master it in no time.
+
+
+Why this colavery colavery colavery d...
+this is super awsome
