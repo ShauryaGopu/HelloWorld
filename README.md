@@ -6,7 +6,7 @@ Gopal Shaurya
 
 
 Now this line I am putting is for readme-edits branch... I am learning Git now, I am late little bit,
-but you know na, It's better late than never.
+but you know na, It's better late than never
 
 Hmm it seems I am getting git good.
 But it's really a good way to code.
